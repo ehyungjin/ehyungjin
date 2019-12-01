@@ -1,2 +1,2 @@
 # ehyungjin
-video dance art
+video dance arts
